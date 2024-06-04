@@ -3,13 +3,13 @@
 SAIBA COMO ASSISTIR PORTUGAL X FINLÂNDIA AO VIVO NA TV PELOS AMISTOSOS INTERNACIONAIS
 TRANSMISSÃO AO VIVO Portugal e Finlândia ao vivo Seleção portuguesa de futebol masculino 4 junho 2024
 
-[🔴➤ ►🌍📺📱👉 Portugal x Finlândia Ao Vivo](https://cutt.ly/Yeu91Ofs)
+[🔴➤ ►🌍📺📱👉 Portugal x Finlândia Ao Vivo](https://gamedays.live/friendly-international/)
 
-[🔴➤ ►🌍📺📱👉 Finlândia x Portugal Ao Vivo](https://cutt.ly/Yeu91Ofs)
+[🔴➤ ►🌍📺📱👉 Finlândia x Portugal Ao Vivo](https://gamedays.live/friendly-international/)
 
-[🔴➤ ►🌍📺📱👉 Portugal x Finlândia Ao Vivo](https://cutt.ly/Yeu91Ofs)
+[🔴➤ ►🌍📺📱👉 Portugal x Finlândia Ao Vivo](https://gamedays.live/friendly-international/)
 
-[🔴➤ ►🌍📺📱👉 Finlândia x Portugal Ao Vivo](https://cutt.ly/Yeu91Ofs)
+[🔴➤ ►🌍📺📱👉 Finlândia x Portugal Ao Vivo](https://gamedays.live/friendly-international/)
 
 TRANSMISSÃO AO VIVO assistir Portugal x Finlândia ao vivo agora Portugal x Finlândia: como assistir ao vivo ao jogo pelas 4 jun
 PORTUGAL SE PREPARA PARA A EUROCOPA 2024
